@@ -15,7 +15,7 @@ $${\color{#00FF00}**4. \space \space Publicising \space weird \space shit,\space
 $${\color{#00FF00}**5. \space \space Hide \space my \space chats \space if \space my \space conversations \space bother \space you.**}$$
 
 
-$${\color{#00FF00}**6. \space \space Media \space  discourse, \space cosplay \space discourse, \space TD/TT \space (attention seeking), \space "sys friendly" \space regis, \space chronically \space online-scrolling \space geeks, \space RCTA.**}$$
+$${\color{#00FF00}**6. \space \space Media \space  discourse, \space cosplay \space discourse, \space TD/TT \space (attention seeking), \space "sys \space friendly" \space regis, \space chronically \space online-scrolling \space geeks, \space RCTA.**}$$
 
 ***
 Read rentry for basic stuff, idk.

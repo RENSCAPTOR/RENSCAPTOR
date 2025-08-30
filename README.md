@@ -1,16 +1,21 @@
-## Hi there 👋
+# DNI
 
-<!--
-**WOVNDFVCKER83/WOVNDFVCKER83** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+1. **if you are sensitive.**
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+2. **do not send me hate because i like problematic media, i do not support that stuff.**
+
+
+3. **if you glorify any mental disorder/illness.**
+
+
+4. **Publicising weird shit, yes im talking to PROSHIPPERS and DARKSHIPPERS.**
+
+
+5. **Hide my chats if my conversations bother you.**
+
+
+6. **Media discourse, cosplay discourse, TD/TT (attention seeking), "sys friendly" regis, chronically online-scrolling geeks, RCTA.**
+
+***
+Read rentry for basic stuff, idk.

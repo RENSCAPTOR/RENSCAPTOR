@@ -9,7 +9,7 @@ $${\color{#00FF00}**2. \space \space do \space not \space send\space me \space h
 $${\color{#00FF00}**3. \space \space if \space \space you \space glorify \space any \space mental \space disorder/illness.**}$$
 
 
-$${\color{#00FF00}**4. \space \space I \space hide \space chats \space freely, \space just \space dont \space be \space a \space weirdo.**}$$
+$${\color{#00FF00}**4. \space \space I \space hide \space chats \space freely, \space and \space overall \space ship \space discourse...**}$$
 
 
 $${\color{#00FF00}**5. \space \space Hide \space my \space chats \space if \space my \space conversations \space bother \space you.**}$$
